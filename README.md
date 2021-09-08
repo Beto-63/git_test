@@ -7,5 +7,5 @@ Integrantes del equipo (Registrarse aqui):
 1.
 2.
 3.
-4. 
+4. Juan Esteban Franco Estacio
 5. Alberto Isaza
